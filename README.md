@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello! 👋
 Halo semua namaku Haikal Dzaky
 Aku mengikuti kelas Studi independent dari Dicoding Indonesia
 Salam Kenal Semuanya 
